@@ -1,0 +1,2 @@
+# sesuatu-
+untuk sendiri
